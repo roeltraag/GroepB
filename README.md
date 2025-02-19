@@ -1,1 +1,1 @@
-# GroepB
+# GroepB (Groep 2)
